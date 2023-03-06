@@ -1,2 +1,2 @@
 # THE-JOE-SEARCH-
-password is (okuu).. thanks @PlainSys..
+password is (okuu).. thanks @Plain..
